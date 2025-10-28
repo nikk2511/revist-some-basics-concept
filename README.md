@@ -1,1 +1,1 @@
-# revist-some-basics-concept
+# revisit-some-basics-concept
